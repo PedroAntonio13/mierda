@@ -1,2 +1,3 @@
 # mierda
 basura contemporánea
+bazofia
