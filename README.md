@@ -1,2 +1,2 @@
 # mierda
-basura
+basura contemporánea
